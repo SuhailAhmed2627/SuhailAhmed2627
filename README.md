@@ -14,5 +14,5 @@ A typical geek who balances between "May the Force be with You" and "May the Mas
 #
 ### Contact Me 📧
 * By Email: suhailahmed2001sam@gmail.com
-* On LinkedIn: [Suhail Ahmed](www.linkedin.com/in/suhailahmed2627)
+* On LinkedIn: [Suhail Ahmed](https://www.linkedin.com/in/suhailahmed2627)
 * On Instagram: [unfilthy_muggle](https://www.instagram.com/unfilthy_muggle/)
